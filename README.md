@@ -27,6 +27,9 @@ For Oorai's Academy (The main character's School Ship), the education system is 
 - Nutritional Science
 - Fisheries Management
 - Agricultural Science
+
 There are other divisions mentioned (such as Meterology), but they are not offered by the main character's school. Another thing to note is that these divisions are _mutually_ exclusive: if you're in one division, you will _not_ learn another (with a few exceptions). This means that someone learning, say, how to design clothes for the hottest trends, or how to fish efficiently and effectively, would not learn World History, Languages, or Math, all of which are offered under Standard Education; this pathway is also the one which offers the Sensha-dō sport.
 
 As for those who run the ship, it is those in the Naval Educations, Engineering, and (presumably) the Intelligence divisions: Naval Educations keep the boat running, moving, and in tip-top shape, while Engineering provides power to the entire cities' worth of technology, lighting, and other such fixtures. If this sounds like child labor, that is because it _literally_ is: instead of paying for tuitions, students can opt for taking _these_ divisions instead, working a full 8 hour shift on top of classes, studying, homework, and generally being a 14-15 year old girl. The entire backbone of the ship is literally built off of draining the lives of 15 year old children, and if *that* isn't a perfect example of the education system, well.. This is a school project, so I won't say too much!!
+
+![image](engineering.png)
