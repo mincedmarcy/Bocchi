@@ -8,7 +8,7 @@ Sensha-dō, as brought up previously, is a pre-WWII sport made for women to impr
 
 And I _do mean_ on the surface, by the way. These "schools" I have been mentioning - the great education system that makes it so that it is easier for students to fire a tank then pass basic algebra - all take place on **aircraft-carrier-esque floating cities**, the size of which are in no way feasible, and are such behemoths that, when docked, tower over the ports meant to house them:
 
-![image](https://static.wikia.nocookie.net/gup/images/6/6a/Ooarai_Carrier.jpg/revision/latest?cb=20161112191831)
+![image](oorai.png)
 
 <sup> The main character's school of choice, Oorai Girls' Academy, is on the _smaller_ end of these "school ships". </sup>
 
