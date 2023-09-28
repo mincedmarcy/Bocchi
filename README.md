@@ -53,7 +53,42 @@ Saint Gloriana Girl's College is a "British" (in quotes for a reason) schoolship
 ![image](https://www.imfdb.org/images/thumb/1/14/GuP_OVA7_Breda.jpg/700px-GuP_OVA7_Breda.jpg)
 
 Anzio High is more so a comedy act then a full-fledged school: being "Italian" (again in quotes), the girls here pride themselves on fun, joy, and _lots_ of food. Their Sensha-dō team drives small, two-person tanks, as most of the school's budget is spent on extravagent parties, buffets, and _lots_ of food: the school square looks like a festival, with booths all over where students can get some pasta, pizza, or maybe even a nice burger to get ready for the next battle.
-
-These two schools may seem very stereotypical of the countries they represent: and there might even be a reason for that, in-universe. It is _never_ made clear if these schools actually hold any British or Italian population: in fact, there is more evidence to suggest that every single Warship has a majority _Japanese_ population rather than one of their culture. Multiple times throughout the show, the main character refers to different schools as a school that 'is based off of' or 'inspired by' its country's culture: it is never explicitly stated that the girls of the Italian high school are actually Italian. Sure, they may _some_ Italian words, or English phrases, but, for the most part, these girls are speaking fluent Japanese - which is not, as some may think, just a restriction based on the fact that this is a Japanese anime made for a Japanese audience who speaks and understands Japanese. It is outright stated that the girls _are_, in universe, speaking Japanese: one character, a USSR commander, berates a member of her squad for only speaking in Russian, saying instead to "speak in Japanese!"
+*****
+These two schools may seem very stereotypical of the countries they represent: and there might even be a reason for that in-universe (here's where those quotes come in). It is _never_ made clear if these schools actually hold any British or Italian population: in fact, there is more evidence to suggest that every single Warship has a majority _Japanese_ population rather than one of their culture. Multiple times throughout the show, the main character refers to different schools as a school that 'is based off of' or 'inspired by' its country's culture: it is never explicitly stated that the girls of the Italian high school are actually Italian. Sure, they may say _some_ Italian words, or English phrases, but, for the most part, these girls are speaking fluent Japanese - which is not, as some may think, just a restriction based on the fact that this is a Japanese anime made for a Japanese audience who speaks and understands Japanese. It is outright stated that the girls _are_, in universe, speaking Japanese: one character, a USSR commander, berates a member of her squad for only speaking in Russian, saying instead to "speak in Japanese!"
 
 The implications of this are rather confusing: what happened to every other nationality? Are they doing the _reasonable_ thing, staying on land, while the Japanese take to the sea and take their culture for themselves? Did some kind of horrific war or battle cause the other nations to be wiped out, leaving only Japan remaining? What happened to everything else? The history of _GuP_ stays accurate to real-world events, save for the few references to schools in-universe taking place on boats since before the death of Christ: characters, at numerous points, make reference to battles such as World War I and II, and even famous commanders of the era!
+
+![image](image_2023-09-27_214108548.png)
+
+<sup> The Main character, Miho Nishizumi, makes a reference to two real-life historical soldiers from the second World War. </sup>
+
+..Wait, forget all that. What did I say two paragraphs ago? Did I just say there was a girl from the _USSR?_
+
+
+## Pravda High School, and the Unknown State of the USSR
+
+The final piece of _GuP_ lore I'm going to bring up, and honestly one of the silliest unmentioned piece of information, is the political conditions of one specific country (if it even is one anymore): Russia, or what is formerly (in our world) the USSR. As anyone should know, the USSR collapsed - it's gone. In its place is Russia, complete with a different political system, general daily life, and, of course, a different flag.
+
+So why does Pravda, the Russian school ship brandish a parody of the Soviet flag?
+
+![image](https://lh6.googleusercontent.com/-SruGJp-mbUc/UPduljuQtBI/AAAAAAAAUrU/9lufIPfpVkg/s640/Girls%2520und%2520Panzer%2520-%252008%2520-%2520Large%252003.jpg)
+
+<sup> Pravda's commander, Katyusha, sits in front of a banner showcasing her school's flag. </sup>
+
+Now, this isn't the only instance of _GuP_ using a historical political symbol: The German School's logo utilizes the Iron Cross (Without the sw*tstika, I feel the need to mention! At no point does _GuP_ reference or use Nazi symbols! Still, it is a little concerning sometimes..), but, given the fact that the symbol in question is primarily _war_ related, there is no question or implication regarding the political status of Germany _or_ it's school.
+
+However, of course, the hammer and sickle was _the flag_ of the USSR, not just a symbol regarding their military technology. Furthermore, modern-day Russia is never mentioned or reference throughout the entirety of the show - the current Russian flag is not present anywhere - and there are no telltale signs that Pravda as a society is _past_ the Soviet Union. The world and story is clearly set in the modern age: girls play video games that could _not_ have been made later than the year 2000, and general technology and culture is long past the 80s. Even so, Pravda remains seemingly stuck before December of 1991: really, there isn't any sign of Pravda being based off of _modern_ Russia! All references to Russia are broad and general: snow-based combat and the language itself. It really is a possibility that, in the world of _Girl's und Panzer_, the Soviet Union is very much a current world power! Maybe _that's_ what happened to the other nations...
+
+
+
+![image](https://assets.mubicdn.net/images/film/158491/image-w1280.jpg?1515858146)
+
+So, what did we learn? Not much, really - just that _Girls und Panzer_ is a genuinely insane show with lore so complex, yet so surface-level that it makes me want to tear my hair out. However, despite all that, it really is a good show and a recommended watch to anyone interested in the sports anime genre (and someone who is familiar with anime in general; this is **not** a good starter show). If anyone really _does_ watch _Girls und Panzer_ because of this website, I am so, _so_ sorry. It really isn't all that, I'm just a bit fixated on it right now.. But, still! Girls driving tanks with queer undertones! This is my desperate plea! <sub> please.. it's really bad but it's also really funny... the girls are dating and they're so cute, please... </sub>  
+
+*****
+
+### Sources..?
+
+All imagery used are screenshots taken from the _Girls und Panzer_ anime, the first film, _Girls und Panzer Der Film_, and the 3rd episode of the OVA, "School Ship War!" All references and lore come from the series itself, as well as the 3rd OVA episode. Girls und Panzer was beautifully crafted by the folks over at Actas Studio, and if Sentai Filmworks (or anyone else related to the _Girls und Panzer_ project, entity or otherwise) wishes for this website to go down, I will gladly do so! Thank you for making _Girls und Panzer!_ I hope the upcoming movies are worth the wait. Panzer Vor!  
+  
+****
